@@ -6,6 +6,7 @@ cos tu bedzie
 https://discord.gg/m3FSuGuwwE
 
 # Gra
+https://www.mediafire.com/file/5neutfkl3o7ll3x/Symulator+Księdza.bat/file
 
 
 
