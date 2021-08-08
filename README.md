@@ -2,7 +2,7 @@
 https://www.youtube.com/channel/UCDz6w0fRLk_5hR9FfgVDAbA
 
 
-#Namemc
+# Namemc
 https://pl.namemc.com/profile/_krzaku.3
 
 
