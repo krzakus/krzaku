@@ -5,5 +5,8 @@ cos tu bedzie
 # Discord
 https://discord.gg/m3FSuGuwwE
 
+# Gra
+
+
 
 
