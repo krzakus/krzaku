@@ -1,6 +1,6 @@
 # Texsture Packi 2021:
 
-<a cos tu bedzie 
+cos tu bedzie 
 
 
 
